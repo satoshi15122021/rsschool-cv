@@ -1,11 +1,11 @@
-### N A M E
-# satoshi satoshi satoshi
+# N A M E
+### satoshi satoshi satoshi
 ***
-### C O N T A C T
-# physical
+# C O N T A C T
+### physical
 ***
-### S P E C I A L I Z A T I O N
-# begginer programmer
+# S P E C I A L I Z A T I O N
+### begginer programmer
 ***
 # A B I L I T I E S
 good durability
