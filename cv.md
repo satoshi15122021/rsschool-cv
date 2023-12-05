@@ -1,4 +1,4 @@
-![jstyle](http://7-themes.com/data_images/out/16/6823023-samurai-wallpaper.jpg)
+![jstyle](7-themes.com/data_images/out/16/6823023-samurai-wallpaper.jpg)
 
 
 # N A M E
