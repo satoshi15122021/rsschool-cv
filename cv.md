@@ -33,4 +33,4 @@
 *english(B2), russian(native), azerbaijani, belarusian*
 
 
-![jstyle](https://xn----7sbcgrydczc.xn--p1ai/src/i/img_lvl3/animenew/anime-berserk-pred/oblozhki-dlya-vk-po-taytlu-berserk-2.png)
+![jstyle](https://xn----7sbcgrydczc.xn--p1ai/src/i/img_lvl3/animenew/anime-berserk-pred/oblozhki-dlya-vk-po-taytlu-berserk-9.png)
