@@ -1,4 +1,4 @@
-### satoshi satoshi satoshi
+### my name is Satoshi Satoshi Satoshi
 ### fax 123456
 ### i am begginer programmer
 ### i have good durability
@@ -6,3 +6,4 @@
 ### i was worked in night cafe :D
 ### i have halfended highgraduated education
 ### my english level is B2
+adfsg
