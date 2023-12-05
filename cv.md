@@ -1,3 +1,6 @@
+![jstyle](https://xn----7sbcgrydczc.xn--p1ai/src/i/img_lvl3/animenew/anime-berserk-pred/oblozhki-dlya-vk-po-taytlu-berserk-2.png)
+
+
 # N A M E
 *satoshi satoshi satoshi*
 
@@ -30,4 +33,4 @@
 *english(B2), russian(native), azerbaijani, belarusian*
 
 
-![jstyle](https://mcdn.wallpapersafari.com/medium/69/6/tHVCQs.jpg)
+![jstyle](https://xn----7sbcgrydczc.xn--p1ai/src/i/img_lvl3/animenew/anime-berserk-pred/oblozhki-dlya-vk-po-taytlu-berserk-2.png)
