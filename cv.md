@@ -16,6 +16,9 @@
 ***
 # C O D E
 *[code](https://pastebin.com/Nk0TttK6)*
+[code][Тег1]
+[Тег1][https://pastebin.com/Nk0TttK6]
+omg
 
 ***
 # E X P I R I E N C E
