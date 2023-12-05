@@ -27,7 +27,4 @@
 ## halfended highgraduated proggrammer
 ##
 # L A N G U A G E S
-## english: B2
-## russian: native
-## azerbaijani
-## belarusian
+## english(B2), russian(native), azerbaijani, belarusian
