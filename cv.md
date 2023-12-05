@@ -9,12 +9,15 @@
 ***
 # A B I L I T I E S
 good durability
+
 ***
 # C O D E
 https://pastebin.com/Nk0TttK6
+
 ***
 # E X P I R I E N C E
 oficiant in night cafe
+
 ***
 # E D U C A T I O N
 halfended highgraduated proggrammer
