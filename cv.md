@@ -1,4 +1,4 @@
-![jstyle](https://xn----7sbcgrydczc.xn--p1ai/src/i/img_lvl3/animenew/anime-berserk-pred/oblozhki-dlya-vk-po-taytlu-berserk-17.png)
+     ![jstyle](https://xn----7sbcgrydczc.xn--p1ai/src/i/img_lvl3/animenew/anime-berserk-pred/oblozhki-dlya-vk-po-taytlu-berserk-9.png)
 
 
 # N A M E
