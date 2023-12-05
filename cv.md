@@ -1,6 +1,3 @@
-![jstyle](https://mcdn.wallpapersafari.com/medium/69/6/tHVCQs.jpg)
-
-
 # N A M E
 *satoshi satoshi satoshi*
 
@@ -32,3 +29,5 @@
 # L A N G U A G E S
 *english(B2), russian(native), azerbaijani, belarusian*
 
+
+![jstyle](https://mcdn.wallpapersafari.com/medium/69/6/tHVCQs.jpg)
