@@ -15,7 +15,7 @@
 
 ***
 # C O D E
-*[code](https://pastebin.com/Nk0TttK6)*
+*[link to pastebin code](https://pastebin.com/Nk0TttK6)*
 
 ***
 # E X P I R I E N C E
