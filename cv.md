@@ -25,7 +25,7 @@
 
 ***
 # E D U C A T I O N
-*halfended highgraduated proggrammer*
+*halfended highgraduated programmer*
 
 ***
 # L A N G U A G E S
